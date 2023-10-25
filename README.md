@@ -5,4 +5,4 @@ Using quantitative analysis we obtained that these markers are more represented 
 
 Additionnaly we wanted to know how these markers are expressed in brain subgrouped to justify negative result in mice model.
 
-→ Paper will be send to a journal end of September 2023.
+→ Paper:
